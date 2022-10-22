@@ -1,6 +1,6 @@
 ### Hi there 👋, I'm a Ainal Haque
 #### Pocha Coder and Web Developer
-![Pocha Coder and Web Developer](https://scontent.fdac24-1.fna.fbcdn.net/v/t1.6435-9/60242632_122667165592612_6138868142824226816_n.jpg?stp=dst-jpg_p720x720&_nc_cat=109&ccb=1-7&_nc_sid=e3f864&_nc_ohc=VHHePx2Y_BIAX_a34Zv&_nc_ht=scontent.fdac24-1.fna&oh=00_AT8fb8_cWBv4qRtusUVnTkbUWPFwyHfo4rxqPlLIVZl7pA&oe=637B0386)
+![Pocha Coder and Web Developer](https://media-exp1.licdn.com/dms/image/D5616AQFwGbj9aqQrZg/profile-displaybackgroundimage-shrink_350_1400/0/1666466332275?e=1671667200&v=beta&t=orc2LkzHTs-JYrLLlOWJCAOlk062dmK6WgMkl4uMtuM)
 
 In particular, I have a strong affinity for the IT technician sector, Web Development, Graphics Designing and the Teaching profession.
 
